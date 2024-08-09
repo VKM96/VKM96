@@ -16,7 +16,7 @@ I am generalist who likes to bring to projects, a complete understanding of the 
 - Misc                  : [Project Management](https://coursera.org/share/2afee4acec175e2c77eccef7140cb4dc), 
 
 ## Contact
-- [vishal k](vishalbhatta@gmail.com) over Email 
+- <vishalbhatta@gmail.com> over Email 
 - [vishal keshava Murthy](https://www.linkedin.com/in/vishal-keshava-murthy-8a2ba1a7/) on LinkedIn
 
 ## Talk to me about ( Please :( )
